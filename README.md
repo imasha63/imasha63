@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **2001imashaperera@gmail.com**
 
-- 📄 Know about my experiences [file:///C:/Users/IMASHA/Downloads/Imasha%20Perera%20(4).pdf](file:///C:/Users/IMASHA/Downloads/Imasha%20Perera%20(4).pdf)
+
 
 - ⚡ Fun fact **Call me Ima**
 
